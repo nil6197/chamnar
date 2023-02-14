@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about 
 - 📫 How to reach me:akashchamnar222@gmail.com,[Hey WhatsApp](https://wa,me/8975514611).
 - 😄 Pronouns: AK
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: i am a learner
 -->
